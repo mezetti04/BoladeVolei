@@ -20,7 +20,7 @@ Aqui veremos os motivos pelo qual elas me intrigam tanto...
 ####      O dono da bola em questão seria Rafael Mezetti, conhecido por perder inumeras coisas sem nem imaginar...
 
 # Equipe da byron resolveu o problema!
-<h1 align="center"><img src="https://tenor.com/bbuf6.gif"/></h1>
+<h1 align="center"><img src="https://tenor.com/bbuf6.gif](https://media.tenor.com/gQ7LkpuZFqoAAAAd/campbell-womens-soccer-womens-soccer.gif"/></h1>
 
 ### A bola estava no cesto de roupas!!!
 
